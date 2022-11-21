@@ -1,0 +1,3 @@
+- 👋 Hi, I’m VJr
+- 👀 I’m interested in cyber security / coding
+- 🌱 I would like to learn more about cyber security
